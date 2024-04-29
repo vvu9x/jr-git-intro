@@ -1,1 +1,1 @@
-join me
+control the galaxy
